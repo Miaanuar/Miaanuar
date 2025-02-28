@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on NULL
 - 📫 How to reach me NULL
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Multi-Passion, Love F1, Geeky & sensitive introvert (i think).
+- ⚡ Fun fact: Multi-Passions, Love F1, Geeky & sensitive introvert (i think).
 
 <!---
 Miaanuar/Miaanuar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
